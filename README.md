@@ -9,4 +9,4 @@ I'm a **Full-Stack Software Engineer** passionate about building scalable applic
 I love collaborating on impactful projects and am always open to chat!
 
 📫 **Connect with me:**  
-[LinkedIn](https://linkedin.com/in/tommyliu625
+[LinkedIn](https://linkedin.com/in/tommyliu625)
